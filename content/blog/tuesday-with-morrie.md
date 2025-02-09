@@ -1,6 +1,7 @@
 ---
-title: Tuesday with Morrie
+title: 《Tuesday with Morrie》 by Mitch Albom
 date: 2025-02-09T01:05:48.910Z
 ---
+
 
 The concept of detachment, which I've come to understand over recent years, is also discussed in the book. 
